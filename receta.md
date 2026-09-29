@@ -24,3 +24,7 @@
 
 1\. Pelar y cortar las patatas en trozos pequeños.
 
+
+
+2\. Freír las patatas en una sartén con aceite caliente.
+
