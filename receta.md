@@ -26,5 +26,7 @@
 
 
 
-2\. Freír las patatas en una sartén con aceite caliente.
+2\. Freír las patatas en una sartén con aceite caliente
+
+3\. Batir los huevos con sal..
 
